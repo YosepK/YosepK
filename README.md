@@ -1,5 +1,5 @@
 - YosepK
-- Fresh Grad of UWE Bristol
+- Fresh Grad of UWE Bristol (Bachelor with Honours in Aerospace Engineering)
 - Drone Developer Enthusiast
 - Speaks Bahasa Indonesia, English and is learning Japanese
 
